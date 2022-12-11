@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DJWetherbee
+- 👋 Hi, I’m Dorothy!
 - 👀 I’m interested in learning to keep up with today's technologies.
 - 🌱 I’m currently learning Web Design, which I am lost and could use some help.
 - 💞️ I’m looking to collaborate on the things I am doing in class. I am learning from home...
